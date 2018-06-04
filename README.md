@@ -1,0 +1,1 @@
+# potencial-da-m-quina-de-computa-o
